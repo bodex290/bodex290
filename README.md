@@ -8,5 +8,5 @@
 - 🌱 I’m currently learning JavaScript
 - 💬 Ask me about anything
 - 📫 How to reach me: samuelojeiwa290@gmail.com
-- 😄 Pronouns: He/Him
+- 😄 Pronouns: Money/Maker
 
